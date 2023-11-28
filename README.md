@@ -12,3 +12,5 @@ https://www.linkedin.com/posts/michaeljmilford_computervision-ecology-allergens-
 https://netsyn.princeton.edu/
 
 https://x.com/uncnlp/status/1728858717624607092?s=61
+
+https://x.com/annargrs/status/1729138147672694885?s=61
