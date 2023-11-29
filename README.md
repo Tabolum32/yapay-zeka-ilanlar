@@ -19,3 +19,13 @@ https://x.com/fuxinli2/status/1729203014177820859?s=20
 
 https://x.com/aldopacchiano/status/1729242639520723027?s=20
 
+https://x.com/timalthoff/status/1729631898450731467?s=61
+
+https://x.com/ambuj123/status/1728460546167763176?s=61
+
+# Staj
+
+https://x.com/luca_zapp/status/1728088480679350441?s=61
+
+https://x.com/syhw/status/1729520044663619807?s=61
+
