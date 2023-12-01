@@ -25,6 +25,8 @@ https://x.com/ambuj123/status/1728460546167763176?s=61
 
 https://x.com/Lianhuiq/status/1729933586537836754?s=20
 
+https://www.linkedin.com/posts/omar-rivasplata-064b4a132_career-update-my-next-career-step-will-activity-7136333323160702978-15Dw?utm_source=share&utm_medium=member_ios
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
