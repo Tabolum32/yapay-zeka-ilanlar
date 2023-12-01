@@ -25,6 +25,10 @@ https://x.com/ambuj123/status/1728460546167763176?s=61
 
 https://x.com/Lianhuiq/status/1729933586537836754?s=20
 
+# Doktora Sonrası
+
+https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
