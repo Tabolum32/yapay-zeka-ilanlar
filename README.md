@@ -51,3 +51,5 @@ https://x.com/tkipf/status/1730287071091368278?s=20
 
 https://x.com/ArashVahdat/status/1729990353481285855?s=20
 
+https://x.com/katjahofmann/status/1730536392520794308?s=20
+
