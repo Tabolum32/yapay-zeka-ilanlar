@@ -35,3 +35,9 @@ https://x.com/ArashVahdat/status/1729990353481285855?s=20
 
 https://www.linkedin.com/posts/julia-kiseleva-24842710_search-jobs-microsoft-careers-activity-7135705647366512640-nfh7?utm_source=share&utm_medium=member_desktop
 
+https://x.com/o_saja/status/1730239419267858648?s=20
+
+https://x.com/tkipf/status/1730287071091368278?s=20
+
+https://x.com/ArashVahdat/status/1729990353481285855?s=20
+
