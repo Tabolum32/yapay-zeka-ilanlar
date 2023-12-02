@@ -31,6 +31,8 @@ https://x.com/MarineCarpuat/status/1730261790691336410?s=20
 
 https://x.com/aviral_kumar2/status/1730259728150982863?s=20
 
+https://www.linkedin.com/posts/heng-yang-09012177_grad-school-applicants-this-year-i-am-particularly-activity-7136422493124190208-BbXo?utm_source=share&utm_medium=member_ios
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
