@@ -57,3 +57,6 @@ https://x.com/ArashVahdat/status/1729990353481285855?s=20
 
 https://x.com/katjahofmann/status/1730536392520794308?s=20
 
+https://www.linkedin.com/posts/qvliao_search-jobs-microsoft-careers-activity-7136054350669336576-Jthc/?utm_source=share&utm_medium=member_ios
+
+
