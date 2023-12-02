@@ -59,4 +59,4 @@ https://x.com/katjahofmann/status/1730536392520794308?s=20
 
 https://www.linkedin.com/posts/qvliao_search-jobs-microsoft-careers-activity-7136054350669336576-Jthc/?utm_source=share&utm_medium=member_ios
 
-
+https://www.linkedin.com/posts/ugo-rosolia_2024-applied-scientist-internship-multiple-activity-7136102922542592000-WfXr?utm_source=share&utm_medium=member_ios
