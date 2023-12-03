@@ -33,6 +33,8 @@ https://x.com/aviral_kumar2/status/1730259728150982863?s=20
 
 https://www.linkedin.com/posts/heng-yang-09012177_grad-school-applicants-this-year-i-am-particularly-activity-7136422493124190208-BbXo?utm_source=share&utm_medium=member_ios
 
+https://www.linkedin.com/posts/andersen-ang-2670394b_i-am-looking-for-phd-students-for-projects-activity-7137080272973377536-5E7a?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
