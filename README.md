@@ -35,6 +35,8 @@ https://www.linkedin.com/posts/heng-yang-09012177_grad-school-applicants-this-ye
 
 https://www.linkedin.com/posts/andersen-ang-2670394b_i-am-looking-for-phd-students-for-projects-activity-7137080272973377536-5E7a?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/ahmedhq_robotics-machinelearning-artificialintelligence-activity-7137107669693190144-5ZaO?utm_source=share&utm_medium=member_ios
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
