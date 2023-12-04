@@ -37,6 +37,8 @@ https://www.linkedin.com/posts/andersen-ang-2670394b_i-am-looking-for-phd-studen
 
 https://www.linkedin.com/posts/ahmedhq_robotics-machinelearning-artificialintelligence-activity-7137107669693190144-5ZaO?utm_source=share&utm_medium=member_ios
 
+https://x.com/michaeloberst/status/1731397508176220408?s=61
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
