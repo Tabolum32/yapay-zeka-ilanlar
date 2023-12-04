@@ -43,6 +43,9 @@ https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-l
 
 https://www.linkedin.com/posts/michael-yip-43913421_hello-friends-i-have-an-opening-for-a-activity-7135689001411248128-5arQ?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/matthew-thorpe-036346a2_department-of-statistics-activity-7137330380520476672-CKAD?utm_source=share&utm_medium=member_ios
+
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
