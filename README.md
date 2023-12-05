@@ -39,6 +39,8 @@ https://www.linkedin.com/posts/ahmedhq_robotics-machinelearning-artificialintell
 
 https://x.com/michaeloberst/status/1731397508176220408?s=61
 
+https://x.com/robinsfwalters/status/1731721102597235163?s=61
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
