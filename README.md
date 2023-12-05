@@ -75,3 +75,5 @@ https://www.linkedin.com/posts/aaron-parness-5a9aaa46_2024-applied-scientist-int
 https://www.linkedin.com/posts/farshad-khadivar-aba32a223_robotics-internship-activity-7137399578579881985-3O8l?utm_source=share&utm_medium=member_desktop
 
 https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-7137520958025736192-yaU8?utm_source=share&utm_medium=member_ios
+
+https://x.com/astonzhangaz/status/1731698624902402281?s=61
