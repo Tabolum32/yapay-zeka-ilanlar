@@ -79,3 +79,7 @@ https://www.linkedin.com/posts/farshad-khadivar-aba32a223_robotics-internship-ac
 https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-7137520958025736192-yaU8?utm_source=share&utm_medium=member_ios
 
 https://x.com/astonzhangaz/status/1731698624902402281?s=61
+
+# İş İlnları
+
+https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
