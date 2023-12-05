@@ -73,3 +73,5 @@ https://www.linkedin.com/posts/ugo-rosolia_2024-applied-scientist-internship-mul
 https://www.linkedin.com/posts/aaron-parness-5a9aaa46_2024-applied-scientist-internship-mwd-activity-7137456165319307266-1Es1/?utm_source=share&utm_medium=member_ios
 
 https://www.linkedin.com/posts/farshad-khadivar-aba32a223_robotics-internship-activity-7137399578579881985-3O8l?utm_source=share&utm_medium=member_desktop
+
+https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-7137520958025736192-yaU8?utm_source=share&utm_medium=member_ios
