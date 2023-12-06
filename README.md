@@ -1,5 +1,7 @@
 # Doktora (Eskiden yeniye doğru)
 
+Önce şu yol gösterici yazıya lütfen göz atın (https://medium.com/@jefferyjiafei/grad-school-application-101-117eba3e2d1f).
+
 https://x.com/cocoweixu/status/1728619393108562253?s=20
 
 https://twitter.com/ambuj123/status/1728460546167763176?s=20
