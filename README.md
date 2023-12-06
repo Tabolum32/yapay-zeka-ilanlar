@@ -2,6 +2,8 @@
 
 Önce şu yol gösterici yazıya lütfen göz atın (https://medium.com/@jefferyjiafei/grad-school-application-101-117eba3e2d1f).
 
+Ayrıca Habib Ullah'ın sayfasına bakınız: https://www.linkedin.com/in/habib-ullah-phd-66a565161/
+
 https://x.com/cocoweixu/status/1728619393108562253?s=20
 
 https://twitter.com/ambuj123/status/1728460546167763176?s=20
