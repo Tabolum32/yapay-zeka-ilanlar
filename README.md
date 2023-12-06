@@ -1,5 +1,4 @@
-# Doktora
-Doktora
+# Doktora (Eskiden yeniye doğru)
 
 https://x.com/cocoweixu/status/1728619393108562253?s=20
 
@@ -85,7 +84,7 @@ https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-71375209
 
 https://x.com/astonzhangaz/status/1731698624902402281?s=61
 
-# İş İlnları
+# İş İlanları
 
 https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
 
