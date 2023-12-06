@@ -41,6 +41,11 @@ https://x.com/michaeloberst/status/1731397508176220408?s=61
 
 https://x.com/robinsfwalters/status/1731721102597235163?s=61
 
+https://x.com/ilijabogunovic/status/1731970225078219154?s=20
+
+https://x.com/stats_stephen/status/1732077708044284383?s=20
+
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
@@ -83,3 +88,7 @@ https://x.com/astonzhangaz/status/1731698624902402281?s=61
 # İş İlnları
 
 https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
+
+https://www.linkedin.com/posts/vasudev-lal-79bb336_ai-research-scientist-activity-7137918474248458241-IMgi?utm_source=share&utm_medium=member_desktop
+
+https://x.com/Bosch_AI/status/1731961639581434145?s=20
