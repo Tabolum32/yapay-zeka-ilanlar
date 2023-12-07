@@ -2,6 +2,8 @@
 
 Önce şu yol gösterici yazıya lütfen göz atın (https://medium.com/@jefferyjiafei/grad-school-application-101-117eba3e2d1f).
 
+Mete Sevinç sayfasında ilanlar pylaşıyor: https://www.linkedin.com/in/msevinc?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
 Ayrıca Habib Ullah'ın sayfasına bakınız: https://www.linkedin.com/in/habib-ullah-phd-66a565161/
 
 https://x.com/cocoweixu/status/1728619393108562253?s=20
@@ -48,6 +50,9 @@ https://x.com/ilijabogunovic/status/1731970225078219154?s=20
 
 https://x.com/stats_stephen/status/1732077708044284383?s=20
 
+https://x.com/huangcza/status/1732820842306769366?s=61
+
+https://x.com/ruohangao1/status/1732554798350877147?s=61
 
 # Doktora Sonrası
 
