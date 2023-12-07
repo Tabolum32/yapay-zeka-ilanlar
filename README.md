@@ -104,3 +104,5 @@ https://www.linkedin.com/posts/vasudev-lal-79bb336_ai-research-scientist-activit
 https://x.com/Bosch_AI/status/1731961639581434145?s=20
 
 https://www.linkedin.com/posts/zhou-zhang-996b9865_ml-crop-models-postdoc-position-ugcPost-7138580239013576704-NsIr?utm_source=share&utm_medium=member_desktop
+
+https://github.com/TheStageAI/TorchIntegral
