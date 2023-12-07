@@ -100,3 +100,5 @@ https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
 https://www.linkedin.com/posts/vasudev-lal-79bb336_ai-research-scientist-activity-7137918474248458241-IMgi?utm_source=share&utm_medium=member_desktop
 
 https://x.com/Bosch_AI/status/1731961639581434145?s=20
+
+https://www.linkedin.com/posts/zhou-zhang-996b9865_ml-crop-models-postdoc-position-ugcPost-7138580239013576704-NsIr?utm_source=share&utm_medium=member_desktop
