@@ -54,6 +54,8 @@ https://x.com/huangcza/status/1732820842306769366?s=61
 
 https://x.com/ruohangao1/status/1732554798350877147?s=61
 
+https://www.linkedin.com/posts/steffen-staab-044555_knowledgegraph-semanticweb-probabilisticcircuits-activity-7138595348054249472-jtzJ?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
