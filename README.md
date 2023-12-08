@@ -105,6 +105,8 @@ https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-71375209
 
 https://x.com/astonzhangaz/status/1731698624902402281?s=61
 
+https://www.linkedin.com/posts/cheng-zhang-a772942a_search-jobs-microsoft-careers-activity-7138840789190615040-4zzn/?utm_source=share&utm_medium=member_ios
+
 # İş İlanları
 
 https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
