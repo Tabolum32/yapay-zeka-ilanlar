@@ -56,6 +56,8 @@ https://x.com/ruohangao1/status/1732554798350877147?s=61
 
 https://www.linkedin.com/posts/steffen-staab-044555_knowledgegraph-semanticweb-probabilisticcircuits-activity-7138595348054249472-jtzJ?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/berkustun_postdoctoral-fellowships-in-responsible-ml-activity-7138723325320581121-OOzP?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
