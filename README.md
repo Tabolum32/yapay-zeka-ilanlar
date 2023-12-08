@@ -68,6 +68,8 @@ https://www.linkedin.com/posts/matthew-thorpe-036346a2_department-of-statistics-
 
 https://www.linkedin.com/posts/berkustun_postdoctoral-fellowships-in-responsible-ml-activity-7131452059148550144-aFaa?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/david-m-rosen_join-activity-7138726360604127232-lHXr?utm_source=share&utm_medium=member_desktop
+
 
 # Staj
 
