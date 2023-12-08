@@ -64,6 +64,8 @@ https://www.linkedin.com/posts/michael-yip-43913421_hello-friends-i-have-an-open
 
 https://www.linkedin.com/posts/matthew-thorpe-036346a2_department-of-statistics-activity-7137330380520476672-CKAD?utm_source=share&utm_medium=member_ios
 
+https://www.linkedin.com/posts/berkustun_postdoctoral-fellowships-in-responsible-ml-activity-7131452059148550144-aFaa?utm_source=share&utm_medium=member_desktop
+
 
 # Staj
 
