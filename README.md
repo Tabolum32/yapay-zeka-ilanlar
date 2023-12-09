@@ -62,6 +62,8 @@ https://x.com/davidskrueger/status/1732923027174699220?s=61
 
 https://x.com/huaizujiang/status/1732930678436544588?s=61
 
+https://x.com/sandyaphd/status/1733153206673268787?s=61
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
