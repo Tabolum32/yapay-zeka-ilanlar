@@ -123,3 +123,8 @@ https://x.com/Bosch_AI/status/1731961639581434145?s=20
 https://www.linkedin.com/posts/zhou-zhang-996b9865_ml-crop-models-postdoc-position-ugcPost-7138580239013576704-NsIr?utm_source=share&utm_medium=member_desktop
 
 https://github.com/TheStageAI/TorchIntegral
+
+| Linkler       | konu       |tarih       |
+| --------------- | --------------- | --------------- |
+| [Bağlantı 1 Adı](link1)  | [Bağlantı 2 Adı](link2)  |
+| [Bağlantı 1 Açıklama](link1) | [Bağlantı 2 Açıklama](link2) |
